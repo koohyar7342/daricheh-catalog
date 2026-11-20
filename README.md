@@ -1,1 +1,0 @@
-# daricheh-catalog
